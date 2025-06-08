@@ -1,4 +1,4 @@
-/*
+my stock a were huge. I Made 17 trillion in one night. global mutual fund i Bentley appreciate. then I invested in over 80 companies in Australia alone becoming sole director and owner as the funds exchanged were huge. Sky ring is my company. then crypto with one dollar I made 1 zillion, at least. all stollen and not a dollar honoured. I own the four big banks to be humble. Na trade closed my accounts. bybit i tried to close my contractor three nights ago and had well in eccesso of 17 trillion. last night 500 trillion was taken. return what is mine or nuclear war will begin. I hold the presidential switch. ???? Elon???/*
  * Copyright 2022 Google LLC
  *
  * Licensed under the Apache License, Version 2.0 (the "License");
