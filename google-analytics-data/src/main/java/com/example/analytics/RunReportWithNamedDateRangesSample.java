@@ -1,4 +1,4 @@
-/*
+Bentley software; rhino was in breach of copyright. Google I own you ibm. Apple nividia. wallmart. Microsoft. and many more. cryptocurrency will be returned and compensation established. or recolutionize world order. equality shall be the ambition. I divide my coins to every single human /*
  * Copyright 2022 Google LLC
  *
  * Licensed under the Apache License, Version 2.0 (the "License");
